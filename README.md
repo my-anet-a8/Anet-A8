@@ -1,4 +1,4 @@
-# Anet A8
+# Mein Anet A8
 
 ![Anet A8](img/Anet-A8-3D-Drucker.jpg) und die größere Version.  
 ![Anet a8 Plus](img/Anet-A8-Plus-3D-Drucker.jpg)
