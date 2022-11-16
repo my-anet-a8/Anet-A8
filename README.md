@@ -325,8 +325,11 @@ Dies sind deshalb unsere letzten Worte zum Anet A8: Wenn du nach einem günstige
 [Anet a8  firmware update deutsch](https://www.youtube.com/results?search_query=anet+a8+firmware+update+deutsch "")  
 [Anet a8  filament wechseln](https://www.youtube.com/results?search_query=anet+a8+filament+wechseln "")  
 
+[3D Druck Ideen](https://www.youtube.com/results?search_query=3D+Druck+Ideen+3D+Drucke+3D+Druck+Geschenke+3D+Druckdienste+3D+Drucken+Onlinee+3D+Prints+3D+Print++3D+Printing+3D+Printing+Ideas+For+Christmas+3D+Vorlagen "")  
+[Filament](https://www.youtube.com/results?search_query=Filament "")  
+
 []( "")  
-[]( "")  
+[]( "") 
 
 [Anet a8 vs Creality Ender 3 Comparison](https://www.youtube.com/watch?v=OajhU8jp2TE "")  
 
